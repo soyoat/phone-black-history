@@ -41,6 +41,7 @@
 虽然美国法庭判决三星赔偿苹果10.5亿美元，但是三星就多个小专利不断起诉，打算耗死苹果。那时的三星家大业大，消耗战完全不虚。但是苹果不行，无休止的专利战让苹果身心俱疲，最终苹果无奈放弃上诉，和流氓三星握手言和。但是苹果放过了三星，三星可不会放过苹果！此后苹果每次出一个机型，三星都会在自己的手机广告中嘲讽，已经成为了一个传统。三星嘲讽苹果的天线问题，嘲讽iphone4S用户排队买手机，甚至嘲笑iphone已经过时，是“老年人用的手机”。这种比城墙还厚的脸皮，也是没谁了！！！
 ### 三星分裂中国地图
 ![samsungmap](https://github.com/soyoat/phone-black-history/blob/master/pictures/samsung-map.jpg)
+![samsungmap2](https://github.com/soyoat/phone-black-history/blob/master/pictures/sam-map2.jpg)
 ### 三星字库门事件
 因芯片缺陷会造成三星手机永久性损坏，在海外免费提供维修的情况下，大陆国行用户却需高价有偿维修。直到政府机构介入媒体曝光后才提供免费维修。
 ### 三星雇佣工读生抹黑HTC事件
