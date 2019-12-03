@@ -1,11 +1,11 @@
 # phone-black-history
 ## 索引
 * [***三星***](#三星)
-  * [ss-go.sh](#ss_gosh)
+  * [三星定价俱乐部事件](#三星定价俱乐部事件)
  
  
  
- ## ss_go.sh
+ ## 三星定价俱乐部事件
 
 - 脚本说明: Shadowsocks 一键安装管理脚本
 - 系统支持: CentOS6+ / Debian6+ / Ubuntu14+
