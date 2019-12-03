@@ -1,4 +1,6 @@
 # phone-black-history
+## 索引
+## 三星
  * [ss-go.sh](#ss_gosh)
  
  
