@@ -114,10 +114,14 @@
 米粉在小米P2P平台损失150万，年轻人的最后一堂课
 ![p2p1](https://github.com/soyoat/phone-black-history/blob/master/pictures/p2p1.jpg)
 ![p2p2](https://github.com/soyoat/phone-black-history/blob/master/pictures/p2p2.jpg)
+### 连海印写黑稿
+
 
 ## 华为
 ### p10闪存事件
 闪存门是指华为P10“闪存门”的事件，起源于一些网友在购买P10手机后，经过测试软件发现华为P10系列手机闪存速度出现了明显差异的情况。用户测试结果显示，有部分手机的闪存速度只达到了200+MB/秒。根据一些媒体报道的评测参数和P10用户测试，速度可以达到800MB/秒左右
+### 荣耀2跑分作弊事件
+
 ## 苹果
 ## 一加
 ## HTC
