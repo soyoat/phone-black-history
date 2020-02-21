@@ -1,8 +1,7 @@
 ## phone-black-history
-初步总结，后期加上资料链接，加上事件信任度。对于虚假事件请发邮箱联系(dwt08770@gmail.com)删除，务必提供出处证据<br/>
-对于大家共有的事件由于只一方被爆料的事件可被删除。<br/>
+初步总结，对于虚假事件请发邮箱联系(dwt08770@gmail.com)删除<br/>
 本仓库的目的是让大家认清，金无赤足人无完人。让大家信息对称，不要恶意抹黑别人<br/>
-时间精力有限，希望大家能一起贡献。合并要求：格式要和前面一样，所有事情结尾必须是“事件”<br/>
+时间精力有限，希望大家能一起贡献。合并要求：格式要和前面一样<br/>
 短域名地址：http://dwz.win/3CM
 <br/>![qr](https://github.com/soyoat/phone-black-history/blob/master/pictures/qr-d.png)<br/>
 ## 索引
