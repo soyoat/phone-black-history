@@ -168,7 +168,7 @@
 大战的始于金山杀毒发布视频，声称360产品窃取个人隐私。周鸿祎当即发布视频否认，并同时直指金山保留了浏览器漏洞并加以监视，且金山参与瑞星杀毒的“微点案”，金山则只能否认。
  
 在两人战争的头一回合，雷军还没有亲自出场。首先回应周鸿祎的是小米合伙人、小米互联网营销的奠基人黎万强——那个后来被余承东亲切称为“阿黎”的爷们。阿黎回敬周鸿祎的是“无耻！”，并将周鸿祎直接叫为“周教主”。
-![]()
+![m](https://github.com/soyoat/phone-black-history/blob/master/pictures/m3.jpg)
 互联网黑化真人、污名化真人的“称谓”，大概就起于此——起于小米。
 
 2010年9月，360安全线负责人傅盛离职，坊间传闻将加盟金山，周鸿祎亲自给雷军打电话，说不能投资（或接收）傅盛的创业（或加盟），雷军没有答应。
@@ -180,7 +180,7 @@
 2011年1月13日，金山百度腾讯结盟发布声明，指斥360。随后360上市，金山拿到腾讯的钱。
  
 至此，雷军和周鸿祎关系彻底破裂。随后，小米推出小米手机1，一年后，360进入智能手机领域，推出360特供机。两人关系雪
-![]()
+![m](https://github.com/soyoat/phone-black-history/blob/master/pictures/m4.jpg)
 只不过，彼时的互联网只有论坛和博客，微博还不是那么火爆、更没有头条这样的平台，各自的怨气都只能压到肚子里。大家都知道，媒体公开报道后，很多事情可能引起一些过度解读。
  
 这一年科技界最重要的事，也许是iPhone4的发布。苹果在大陆的追随者之一，雷军及他的小米公司，则带着小米手机1通过互联网营销，开始火爆起来。
@@ -188,27 +188,27 @@
 2011年8月29日出版的《创业家》，刊发了一篇名为《雷军谈乔布斯:乔布斯给了我一个与众不同的梦想》的文章。
  
 文章发表时，正值乔布斯辞去苹果一切职务——癌症已将他拖向死亡边缘之际。
-![]()
+![m](https://github.com/soyoat/phone-black-history/blob/master/pictures/m5.jpg)
 周鸿祎直接@雷军，并质问雷军，最后说雷军是“商人”，与乔布斯不是一类人。
  
 这话算是直接撕开雷军“商人”的面具，可能周鸿祎也想不到，十年来，雷军变成了最大的KOL，是科技界最大的“带货网红”。
  
 随后，雷军在微博里面道歉。
-![]()
+![m](https://github.com/soyoat/phone-black-history/blob/master/pictures/m6.jpg)
 但是，雷军显然没有考虑到，他是在接受一家还算体面的杂志的专访，最后刊印出来的文字，可是经过了小米公司包括雷军在内的层层审核，这可不是“随便说的话。”
-![]()
+![m](https://github.com/soyoat/phone-black-history/blob/master/pictures/m7.jpg)
 周鸿祎没有继续拷问雷军的行为，直言雷军就是拿乔布斯的生死来做营销，捆绑小米和苹果。这估计是中国企业家第一次公开直言小米“捆绑”（也就是碰瓷）大品牌进行营销活动的公开言论了。
-![]()
+![m](https://github.com/soyoat/phone-black-history/blob/master/pictures/m8.jpg)
 当然，也有人说，周鸿祎这是在为自己的360特供机做预热。
  
 2012年5月4日，经过长时间预热后，360决定联合各大厂家，推360特供机，这些厂家包括华为替360开发的“华为闪耀”特供机。
  
 那会儿，荣耀还没出生。
-![]()
+![m](https://github.com/soyoat/phone-black-history/blob/master/pictures/m9.jpg)
 随后，新浪科技大篇幅报道了360做特供机的新闻，并做了专题。
-![]()
+![m](https://github.com/soyoat/phone-black-history/blob/master/pictures/m10.jpg)
 周鸿祎也连发十几条微博，直指小米的“为发烧而生”是个“伪命题”。
-![]()
+![m](https://github.com/soyoat/phone-black-history/blob/master/pictures/m11.jpg)
 现在回过头去看，在2014年年末2015年年初时，配置已经不再是高端手机的唯一标准了。从2015年开始，高端手机开始比拼配置之外的设计、体验和自研技术，这也成为了各大高端品牌的核心卖点。
  
 老周的大炮，引来了小米众高管的“骂架”。
@@ -218,15 +218,15 @@
 在对真人、真物的“污名化”上，黎万强开一个不好的头。
  
 从此，在小米的手机宣传中，除了标准版之外，还多了“阉割版”、“满血版”等等自创说法。当然这些版本中，“阉割”都是用于别人家的东西，“满血”则是用于自己的品牌。
-![]()
+![m](https://github.com/soyoat/phone-black-history/blob/master/pictures/m12.jpg)
 小米还打出一波“让利7000万”的活动，利用互联网营销，也取得不错的成绩。黎万强在微博回复中，直接将周鸿祎说为“周总特宫后”的“阉割低配版”还要再苦等。
-![]()
+![m](https://github.com/soyoat/phone-black-history/blob/master/pictures/m13.jpg)
 黎万强之后，第二个出场的，是小米合伙人之一的林斌。今天，林总已经贵为小米的副总裁，技术总监了。
  
 林斌上来就直接开揭周鸿祎的老底。当然，周鸿祎的“3721软件”，的确有些“流氓”。
 
 和林斌对话的，则是联通和网通的两个管理人员。
-![]()
+![m](https://github.com/soyoat/phone-black-history/blob/master/pictures/m14.jpg)
 整个6月，黎万强发表的微博中，关于“特宫机”的，占了80%以上。而那段时间，正是360特供机上市的最火的时机。
  
 黎万强在和周鸿祎的骂架中，完美地将小米的互联网营销套路展示的淋漓尽致。
@@ -240,23 +240,23 @@
 最后，将自己伪装成受害者。假装弱势骗取同情，用这种方式来引流、带节奏。
  
 值得一提的是，这个时期，黎万强写了一篇叫《参与感》的文章。这篇文章几乎囊括了社区粉丝经济的互联网营销精髓，推荐大家抽时间可以看看。
-![]()
+![m](https://github.com/soyoat/phone-black-history/blob/master/pictures/m15.jpg)
 请大家回忆一下，最近卢伟冰对荣耀V30的骂架，是不是完美延续了黎万强的“战略部署”？当卢伟冰在微博上打出“战略部署”四个字的时候，不知道已经离职了的黎万强作何感想？
  
 当然，由于周鸿祎炮口始终是对准雷军的，对于黎万强和林斌，都选择性地忽视了。这和后来荣耀选择的策略一致——不和下面的人多嘴。
  
 即使周鸿祎在被MIUI当时的负责人张述骂了，周鸿祎也还是一样将话题转移到了雷军。
-![]()
+![m](https://github.com/soyoat/phone-black-history/blob/master/pictures/m16.jpg)
 周鸿祎当然不是那么好欺负的，你污名化我，我肯定得还回去。
-![]()
+![m](https://github.com/soyoat/phone-black-history/blob/master/pictures/m17.jpg)
 “机霸”之后，你以为就完了么？
  
 骚年们，你们太天真了。在被小米高管们成为“周教主”“周流氓”后，周鸿祎终于给了雷军一个伟大的江湖称号——雷不群，这个比雷布斯还伟大的名字，简直响贯东方。
 
 同时顺手给小米公司另外一则大名——粗粮公司。
-![]()
+![m](https://github.com/soyoat/phone-black-history/blob/master/pictures/m18.jpg)
 而在此之前，雷军对于360发布的特供机，语气还是相对比较理性的。
-![]()
+![m](https://github.com/soyoat/phone-black-history/blob/master/pictures/m19.jpg)
 只不过，他这条微博里面说的话，最实际的就是拿出来，教育一下现在自己下面的众多高管。
  
 2014年，360收购酷派手机。随后从荣耀离职的刘江峰，出任酷派手机CEO，但不久后又离职，坊间猜测是因与华为的竞业协议有关。2015年之后，手机圈基本上没有360什么事了。
@@ -264,7 +264,7 @@
 360手机与小米的骂架，以周鸿祎失败而告终。
  
 不过，周鸿祎的确将小米的互联网营销的打法摸得门儿清。这也给了后面的“荣耀们”提供了战斗经验。同时，周鸿祎将小米的一些行为，也进行了概括，比如“耍猴”。
-![]()
+![m](https://github.com/soyoat/phone-black-history/blob/master/pictures/m20.jpg)
 周鸿祎最后一条和雷军有关的微博，停留在了2015年12月10日。
  
 
@@ -293,42 +293,42 @@
 不可能的，成人的世界只有利益，小朋友才分对错呢。
  
 早在2013年，小米推出红米系列的时候，林斌就给红米有个定位，这个定位实际上放到今天，基本上也还算是符合红米独立后的基本情况的。
- ![]()
+ ![m](https://github.com/soyoat/phone-black-history/blob/master/pictures/m21.jpg)
  
 所以其既定路线，和荣耀独立基本上也是一致，保留一个子品牌，在性价比市场冲杀，让主品牌进行高端化。
  
 但小米这个策略了，晚了几年才真正实施。
  
 当然，以余承东为代表的华为，及后期以刘江峰、赵明为代表的荣耀，和小米的相处，其实是随着市场竞争加剧而逐步加深的——他们也是从“相爱”走到“相杀”。
-![]()
+![m](https://github.com/soyoat/phone-black-history/blob/master/pictures/m22.jpg)
 
 如考古队员挖掘所言：曾经也很友好！
-![]()
+![m](https://github.com/soyoat/phone-black-history/blob/master/pictures/m23.jpg)
 
 余承东还曾为小米手机1破百万订单表示祝贺，而且还肯定了小米互联网营销及执行力，并向华为终端推荐，要求他们学习。
  
 随后，余承东还表示，“小米2发布时，华为荣耀2代产品也可以发布了”。而且，雷军在微博上，也和余承东一样“和气生财”。
-![]()
+![m](https://github.com/soyoat/phone-black-history/blob/master/pictures/m24.jpg)
 
 当然，后来华为手机的确也将手机自带的输入法改为百度输入法，算是采纳了网友的建议，以及接受雷军的鼓励吧。
  
 而且，小米其他高管同时期对华为，基本上都是积极向上的，比如林斌。
-![]()
+![m](https://github.com/soyoat/phone-black-history/blob/master/pictures/m25.jpg)
 
 虽然余承东经常谈及华为与小米在互联网营销、渠道、品牌上存在一定的差距，但从来没有说自家手机比小米差。
  
 荣耀和小米的战争开端，应该是华为成为第一家360特供机的定制厂商，而且360特供机的华为版本，取名也很“华为”——华为闪耀。
-![]()
+![m](https://github.com/soyoat/phone-black-history/blob/master/pictures/m26.jpg)
 
 这条微博后来被网友解读：余承东也认为“发烧友手机”是一个“伪命题”。虽然华为闪耀只提供了一款手机后，就被内部叫停，但是这件事，无疑撕开了华为与小米的关系中撕开了一条口子。
-![]()
+![m](https://github.com/soyoat/phone-black-history/blob/master/pictures/m27.jpg)
 
 特供机事件中雷军的回复，明显增加了嫌隙的气氛。
  
 真正的战争，在2013年年底打响。
  
 那一年，华为宣布荣耀品牌独立运营，主攻互联网用户。从2014年1月8日，荣耀3X发布，开启了荣耀对小米半年的“像素级”贴身模仿战。在产品、布局、营销上，依靠模仿战略，荣耀完全紧跟小米的节奏和步伐，最终用了一年的时间，站稳了互联网手机的脚跟。从荣耀3C开始，荣耀的互联网之路走得更好了。
-![]() 
+![m](https://github.com/soyoat/phone-black-history/blob/master/pictures/m28.jpg) 
 
 严格意义上讲，小米的蹿红，让传统的下线厂家们眼红了。不只是华为、中兴、联想等大厂推出了子品牌来对标小米，进行互联网营销，其他互联网品牌也如雨后春笋一般涌现，其目的其实都只有一个：
  
@@ -337,17 +337,17 @@
 只不过荣耀做得比较好，把模仿小米这件事情做成了超越小米。明眼人都知道，华为让荣耀独立运营，其目的就是和小米进行贴身肉搏战，让华为腾出手来与三星、苹果掰掰手腕。
  
 即便在荣耀对小米贴身模仿，小米内部已经对荣耀极度敏感的当时，对于小米手机转发所谓友商“黑米日报”的内容，余承东都报以解释，并同时 @雷军 及 @黎万强。
-![]()
+![m](https://github.com/soyoat/phone-black-history/blob/master/pictures/m29.jpg)
  
 实际上对于粉丝或者是水军的行为，双方都有一定的忍耐，大家都知道对方口袋里面装的是手雷还是牙签，只不过不挑明而已。
  
 而对于官方的这种明显带节奏的行为，余承东在当时也还亲自站出来，打个圆场。
  
 这个时间段里，黎万强代表小米，主动出场推动价格战，而价格战的源头，是雷军推出699元的红米4G手机（移动版）。
-![]()
+![m](https://github.com/soyoat/phone-black-history/blob/master/pictures/m30.jpg)
  
 但是荣耀对价格战的跟随，被余承东阻拦了下来。至少公开信息层面上来看，价格战的确是余承东主动要求停止的。但是实际上，双方的价格战，直到今天都没有半点停止的迹象。
-![]()
+![m](https://github.com/soyoat/phone-black-history/blob/master/pictures/m31.jpg)
 
 而且余承东在微博中，不仅仅是 @雷军 及 @黎万强，还对同步艾特了当时荣耀团队的 @刘江峰 和 @张晓云，不仅是对小米示弱，也算是对荣耀进行工作部署。
  
@@ -356,54 +356,54 @@
 小米和荣耀的全面战争，被认为是在2014年9月17日正式打响的。因为这天，雷军亲自上场，并直指余承东“圆场”的“黑稿”行为。
  
 起因是某自媒体，发布了一份评测，小米认为是一篇黑稿，和小米产品一起参加测试的，是荣耀的机子，同时贴出了小米手机内部芯片拆解的图片。
-![]()
+![m](https://github.com/soyoat/phone-black-history/blob/master/pictures/m32.jpg)
  
 9月26日，雷军转发这位用户的评测文章，并直接询问：是哪位友商的杰作？
  
 话里有话，这个锅明显是甩向了荣耀。
-![]()
+![m](https://github.com/soyoat/phone-black-history/blob/master/pictures/m33.jpg)
  
 随后，包括刘江峰及张晓云等多位荣耀负责人，都转发了雷军的微博，并进行了比较客观的解释。
-![]()
+![m](https://github.com/soyoat/phone-black-history/blob/master/pictures/m34.jpg)
 
 但是，雷军并没有停止攻击——注意，不是解决问题，是攻击。
-![]()
+![m](https://github.com/soyoat/phone-black-history/blob/master/pictures/m35.jpg)
 
 并分别对刘江峰和张晓云进行了隔空对话。最终，在余承东通过直接领导，对荣耀团队进行问询后，否认了这一行为。
  
 但是雷军的攻击，依旧没有停止，说小米方面在整理相关内容，并会提供给余承东判断是否是荣耀的黑稿。
-![]()
+![m](https://github.com/soyoat/phone-black-history/blob/master/pictures/m36.jpg)
 
 最终，雷军并没有提供给余承东资料（公开信息），余承东也没用再进行回复。
  
 一个月后，最大的嘲讽来自于雷军。10月23日，余承东发布一条华为终端的微博，肯定华为终端在2014Q3取得的成绩。
-![]()
+![m](https://github.com/soyoat/phone-black-history/blob/master/pictures/m37.jpg)
 
 雷军转发并发了一条嘲讽微博，但在10分钟内即删除。并且雷军在这条微博下还进行了统一回复，都用了同一句话：
  
 “华为是我敬重的公司，只是不喜欢华为终端的某些人！”
-![]()
+![m](https://github.com/soyoat/phone-black-history/blob/master/pictures/m38.jpg)
 
 这篇微博成为雷军和华为骂架的顶峰，也是人们用来说雷军人设的缘由之一。说实话，现在看来，对于像雷军这样的公司高管、公众人物来说，这条微博确实不体面。
  
 另一个高潮，是在2015年1月15日的小米Note系列发布会后。这个高潮，从华为的角度看，无疑给了雷军蒙头一棒。
  
 林斌最先开始在微博上预热，并直指友商无底线抄袭小米。
-![]()
+![m](https://github.com/soyoat/phone-black-history/blob/master/pictures/m39.jpg)
 
 荣耀方面站出来发难的是余承东，从屏幕分辨率及续航这两个方面对小米进行了抨击。
-![]()
+![m](https://github.com/soyoat/phone-black-history/blob/master/pictures/m40.jpg)
  
 随后，林斌对其进行了回复，现在回头看林斌的回应，也是最典型的“米氏骂架”风格。就是在配置上，全面吊打对方，最先被吊打的就是华为的Mate 7，顺带还嘲讽了一下余承东，问他什么时候把手机屏幕升级成720P。
-![]()
+![m](https://github.com/soyoat/phone-black-history/blob/master/pictures/m41.jpg)
 
 雷军也没用闲着，主动出击。回应的这句话，成为了小米骂架史上的经典：
  
 “友商急了。”——直到今天。
-![]()
+![m](https://github.com/soyoat/phone-black-history/blob/master/pictures/m42.jpg)
 
 在两位小米合伙人的回复后，余承东也发了一条比较出格的微博，虽然随后余承东也选择了删除。
-![]()
+![m](https://github.com/soyoat/phone-black-history/blob/master/pictures/m43.jpg)
 
 余承东直接说小米是“屌丝品牌”，当然这也不怪余承东，屌丝是雷军自己说出来的，并还为此制作了T恤，发给米粉们。但是余承东这么说，无疑也算是将小米贴上了标签。
  
@@ -420,8 +420,8 @@
 我们觉得不合适！
  
 但是，小米一直在做这件事。上场的不只是雷军，还有众高管。
-![]()
- 
+![m](https://github.com/soyoat/phone-black-history/blob/master/pictures/m44.jpg)
+![m](https://github.com/soyoat/phone-black-history/blob/master/pictures/m45.jpg) 
 要知道这些高管里面，雷军是创始人，徐洁云是公关部经理，安卓老张是研发总监，卢伟冰是全球副总裁、红米总经理……都是手机界的头面人物。
  
 #### 新时期的骂架
@@ -433,7 +433,7 @@
 但是，谁都不能否认，雷军和黄章还是“兄弟”的时候，雷军从金山辞职，有半年的时间呆在同属珠海的魅族。之后，赋闲近三年的雷军，创办小米。
  
 在交恶前，雷军曾经不止一次的，在微博上表达其对魅族的“爱”。
-![]()
+![m](https://github.com/soyoat/phone-black-history/blob/master/pictures/m46.jpg)
  
 而且，雷军的表达也得到了黄章的回应，对于基本上不玩微博，自己建“社区”做粉丝经济的黄章，在自己的论坛里面，也表达了对雷军的信任。
  
@@ -444,39 +444,39 @@
 小米与魅族的交恶，是从MIUI的发布开始，魅族是国内最早做系统优化、互联网粉丝社区运营的公司，而且一直做得不错，直到今天也是。
  
 MIUI发布后，黄章在论坛里说到：“我并不是怕他，只是恶心他”。明眼人都知道这说的是就是雷军。
-![]()
+![m](https://github.com/soyoat/phone-black-history/blob/master/pictures/m47.jpg)
 
 而MIUI发布前，黄章甚至连马上要发布的手机M9 的UI交互文档设计方案发给雷军，和他一起探讨。而这个阶段，雷军还委托UC的俞永福，和雷军在谈投资，当然，最后投资是崩了的。
  
 之后，雷军微博再无魅族。而黄章骂架骂雷军，从来没留情过。
-![]()
+![m](https://github.com/soyoat/phone-black-history/blob/master/pictures/m48.jpg)
 
 倒是黎万强深知魅族社区文化的重要性，做过几次标志性的回应，其中关于魅族的，多是与删帖、煤油有关。
-![]()
+![m](https://github.com/soyoat/phone-black-history/blob/master/pictures/m49.jpg)
 
 记住罗永浩，马上出场的就是他，这个曾经以米粉自居的男人。
  
 罗永浩最初的情话来自于网友，有人发布了一张罗永浩2012年参加小米手机2发布会的照片，并配文说，这可能是罗永浩最想删掉的照片，罗永浩则对这张照片进行了解释，看起来云淡风轻，顺风顺水。
-![]()
+![m](https://github.com/soyoat/phone-black-history/blob/master/pictures/m50.jpg)
 
 随后，雷军转发罗永浩微博，并表达了一下企业家情怀。
-![]()
+![m](https://github.com/soyoat/phone-black-history/blob/master/pictures/m51.jpg)
 
 罗永浩则以拳头以回应，而且在小米 MIX 1发布后，罗永浩还半夜发出“致敬小米”的感慨。当然，雷军也用来自同行的博大胸怀来回应。
-![]()
+![m](https://github.com/soyoat/phone-black-history/blob/master/pictures/m52.jpg)
 
 小米Note3发布，罗永浩和小米似乎都还只是稍有嫌隙，还转发了网友的恶搞。
-![]()
+![m](https://github.com/soyoat/phone-black-history/blob/master/pictures/m53.jpg)
  
 实际上，罗永浩对小米的发难，有且可能只有一次。毕竟论体量，论声量，论市场竞争，锤子手机从来都不可能成为小米的对手，虽然罗永浩互联网上闹得欢腾。
  
 2018年6月19日，罗永浩做客京东直播，当然是带货了。过程中，主持人问了一个手机行业的问题。
-![]()
+![m](https://github.com/soyoat/phone-black-history/blob/master/pictures/m54.jpg)
 
 按道理说，主持人设置这个问题的目的，肯定是想让罗永浩吹吹自己的卖点。但是，罗永浩把矛头，转向了“黑科技”——众所周知，黑科技这个梗，来源于小米发布会上，雷军“一页纸的黑科技”。
  
 罗永浩直接在直播中说到，都是组装厂，没什么黑科技——这也太不给面子了吧。
-![]()
+![m](https://github.com/soyoat/phone-black-history/blob/master/pictures/m55.jpg)
 
 随着罗永浩的资金流断裂，锤子卖身，锤子手机也陷入低谷，基本上也失去了骂架的意义，在小米的骂架史中，这也并不是重点。
  
@@ -502,18 +502,18 @@ MIUI发布后，黄章在论坛里说到：“我并不是怕他，只是恶心�
 技术上的骂架核心就是：“要是哪天把我惹急了，我就给你们科普。”
  
 比如屏幕，在小米MIX未发布之前，雷军直接在小米5发布会上说：“我是做技术的，不好意思像友商一样吹无边框”，随后大篇幅解释手机屏幕的“边框”。不久之后，小米推出全面屏手机MIX系列，主打的就是“无边框”。
-![]()
+![m](https://github.com/soyoat/phone-black-history/blob/master/pictures/m56.jpg)
 
 在小米手机9发布会上，雷军说，打孔屏不成熟，信不信科普缺点。
-![]()
+![m](https://github.com/soyoat/phone-black-history/blob/master/pictures/m57.jpg)
 
 之后，小米技术总监王腾，还真的发微博进行科普。
-![]()
+![m](https://github.com/soyoat/phone-black-history/blob/master/pictures/m58.jpg)
 
 可惜的是，随后，红米、小米的机型，几乎都用上了打孔屏。技术的确是成熟了，可以用了，真香。
  
 比如影像系统，“像素呢，不是越大越好，手机的摄像头呢，也不是越多越好。”
-![]()
+![m](https://github.com/soyoat/phone-black-history/blob/master/pictures/m59.jpg)
 
 之后的故事，大家都清楚了，小米CC9上了1.08亿像素摄像头，小米10上了1.08亿像素摄像头，为了凑数，还有两个200万的摄像头……
  
@@ -524,13 +524,13 @@ MIUI发布后，黄章在论坛里说到：“我并不是怕他，只是恶心�
 出现问题——转移视线——制造热点——甩锅友商。
  
 因某评测机构评测时，小米10某游戏出现卡顿，发出“嗡嗡嗡”的电流声，这可是“梦幻之作”不能出现的问题啊。
-![]()
+![m](https://github.com/soyoat/phone-black-history/blob/master/pictures/m60.jpg)
 
 卢伟冰随即果断转移视线，抛出“扁平马达”，连发多条微博，制造“嗡嗡嗡”的话题，激发热点。
-![]()
+![m](https://github.com/soyoat/phone-black-history/blob/master/pictures/m61.jpg)
 
 估计还是为了转移视线，雷军也在嗡嗡嗡中参与了，还制造了另外一个热词——海啸。
-![]()
+![m](https://github.com/soyoat/phone-black-history/blob/master/pictures/m62.jpg)
  
 只不过这一届网友，不好带了。信息都是公开的，甩锅给友商这一招，逐渐不好使了。毕竟这“满满的套路”，网友们都熟悉了，这配方实在是太熟悉了，味道都那么好。
  
